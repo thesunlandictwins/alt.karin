@@ -21,5 +21,5 @@ usually playing in the above pony w/ a rose in my name (🌹). <br>
 
 <p align="center">
 links <br>
-  <a href="https://rentry.co/pityspreacher">rentry (pityspreacher)</a>
+  <a href="https://rentry.co/pityspreacher">rentry (has slightly more in-depth info)</a>
 </p>
